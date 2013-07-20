@@ -1,3 +1,0 @@
-practica
-========
-komo estas??? 
